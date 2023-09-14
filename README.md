@@ -1,1 +1,1 @@
-# PROJECT---B
+"PROJECT - B : The Journey Within" offers a unique blend of entertainment and education inviting players to experience the captivating world of microorganisms within the human body. Are you ready to undertake this microscopic adventure, exploring the wonders and challenges of the human microbiome? Embark on your microbial odyssey today and discover the incredible world within us!
